@@ -1,0 +1,4 @@
+- hey, hi, hello.
+- i do..things
+- reach me on discord by nimonic. (with the period)
+- wont do much, will code random things
